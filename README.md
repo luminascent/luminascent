@@ -15,6 +15,6 @@
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ![Project image]
-(https://pin.it/5LHOtbdi8)
+(5LHOtbdi8)
 
 
