@@ -1,7 +1,7 @@
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 ![](blinkiesCafe-du.gif)
 
-![Project image](e21516ef3814c7cce41461558a41eb10.gif)
+![Project image](ezgif-234f105ab7f8e4dc.gif)
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ ᴏᴘᴇɴ 𝟸 ᴍᴇᴇᴛ   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ɴᴇᴡ ᴘᴘʟ ᵔ ᵕ ᵔ (unless dni!)
 
