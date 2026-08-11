@@ -20,7 +20,7 @@
  
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎︶ ·̩͙⏝ ͝   ⟡   ͝ ⏝ ·̩͙︶ ͝
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-![](https://github.com/luminascent/luminascent/blob/main/717d24574273f83c511aa0a44a7cd10b.gif)
+![](41245a14e98e7cf6ead17e5ab3b079f9.jpg)
 
 
 
