@@ -24,9 +24,7 @@
 
  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  
 
-## Badges
-
-[![Love Letters Received](https://img.shields.io/badge/Love%20Letters%20Received-527-F8BA64?style=flat-square)]()
+[![Love Letters Received](https://img.shields.io/badge/Love%20Letters%20Received-172-F8BA64?style=flat-square)]()
 
 𝁼𐂯 
 ‎ ‎ ‎ ‎ ‎  
