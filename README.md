@@ -38,7 +38,7 @@ _𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ
  [ᵃᵗᵃᵇᵒᵒᵏ!!](https://luminascent.atabook.org/?page=1)
 ꩜
   
- [ˢᵗʳᵃʷ](wip)
+**STRAW CURRENTLY WIP**
   
 [ʳᵒᵃᵈᵇˡᵒᶜᵏˢ](https://www.roblox.com/share?code=ac2b8bd8246f914984f1e328e7e8c7a0&type=Profile&source=ProfileShare&stamp=1787322111313)
 
