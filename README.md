@@ -26,7 +26,7 @@ _𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ
 ‎ ‎ __‎ ‎  ´͈  ᵕ `͈ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎  ‎  ‎ ғᴀɴᴅᴏᴍs ɪɴᴛ ᴘʟs
 ‎ ‎ ‎ ‎ ‎ ‎ ᛝ__
 
-![.](Untitled606_20260821230411.png) ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  
+![.](Untitled606_20260821231219.png) ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  
 
 [![Love Letters Received](https://img.shields.io/badge/croissants%20eaten%20-143-F8BA64?style=flat-square)]()
 
