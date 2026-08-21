@@ -41,6 +41,12 @@ _𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ
  [ˢᵗʳᵃʷ](wip)
   
 [ʳᵒᵃᵈᵇˡᵒᶜᵏˢ](https://www.roblox.com/share?code=ac2b8bd8246f914984f1e328e7e8c7a0&type=Profile&source=ProfileShare&stamp=1787322111313)
+
+[ᵖʳᵒⁿᵒᵘⁿˢ.ᶜᶜ](https://pronouns.cc/@luminascent)
+
+
+***[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bold+Code&pause=1000&color=930000&width=500&lines=P.S:+MY+SITES+ARE+CURRENTLY+WIP!)](https://git.io/gradient-svg)***
+
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 ![](blinkiesCafe-WF.gif)
@@ -49,7 +55,7 @@ _𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ
 
 </div>
 
-  ‎ ![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
+ ![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
 ![.](282b55ff.gif)![.](2819e710.gif)
 ![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
 ![.](282b55ff.gif)
