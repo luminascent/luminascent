@@ -15,7 +15,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F8BA64&width=435&lines=okay,+its+yours+anyway.)](https://git.io/typing-svg)
 
-𝁽🌱𝆊 ‎ ‎ ‎ ‎ ‎‎ „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ ᴏᴘᴇɴ 𝟸 ᴍᴇᴇᴛ   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ɴᴇᴡ ᴘᴇᴏᴘʟᴇ!
+𝁽🌱𝆊 ‎ ‎ ‎ ‎ ‎‎ „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ ᴏᴘᴇɴ 𝟸 ᴍᴇᴇᴛ   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ɴᴇᴡ ᴘᴇᴏᴘʟᴇ
 
 ‎ ‎ ‎ ‎ 𝁼🥨ྀི  ‎ ‎ ‎‎‎ ‎  ‎ ‎ ‎„ ᴍᴏsᴛʟʏ ᴀᴄᴛɪᴠᴇ ɪɴ ᴘᴛ! (ᴜɴʟᴇss ʙᴜsʏ) "‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 𝄪𐧶
 
@@ -23,7 +23,11 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ᛝ
 
  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  
-  
+
+## Badges
+
+[![Love Letters Received](https://img.shields.io/badge/Love%20Letters%20Received-527-F8BA64?style=flat-square)]()
+
 𝁼𐂯 
 ‎ ‎ ‎ ‎ ‎  
  [ᵈⁱˢᶜ𐂴ʳᵈ !](https://discord.gg/jGjrUNRy)
@@ -31,7 +35,7 @@
 
  [ᵃᵗᵃᵇᵒᵒᵏ!!](https://luminascent.atabook.org/?page=1)
 ꩜
- 
+  
  [ˢᵗʳᵃʷ](https://luminascent.straw.page)
   
   
@@ -41,5 +45,4 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ 𓏵
 
-
-
+</div>
