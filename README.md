@@ -1,9 +1,12 @@
-‎ ‎ ‎ ‎     ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎︶ ·̩͙⏝ ͝   ⟡   ͝ ⏝ ·̩͙︶ ͝
+  ‎ ![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
+![.](282b55ff.gif)![.](2819e710.gif)
+![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
+![.](282b55ff.gif)
+
 
 ```iwcuf/w2i/c+h !! (unless dni)```
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-![](blinkiesCafe-du.gif)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](blinkiesCafe-du.gif)
 ‎ ‎ ‎ ‎ ‎ ‎𞄶𝇅𝆺𝅥𝅯𝄘ࠗٞ🕰️𝅬𝅥𝁽 ‎ ‎ ‎ ‎ ‎ 
 ![](blinkiesCafe-fJ.gif)
 
@@ -35,14 +38,18 @@ _𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ
  [ᵃᵗᵃᵇᵒᵒᵏ!!](https://luminascent.atabook.org/?page=1)
 ꩜
   
- [ˢᵗʳᵃʷ](https://luminascent.straw.page)
+ [ˢᵗʳᵃʷ](wip)
   
 [ʳᵒᵃᵈᵇˡᵒᶜᵏˢ](https://www.roblox.com/share?code=ac2b8bd8246f914984f1e328e7e8c7a0&type=Profile&source=ProfileShare&stamp=1787322111313)
   
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎︶ ·̩͙⏝ ͝   ⟡   ͝ ⏝ ·̩͙︶ ͝
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 ![](blinkiesCafe-WF.gif)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ 𓏵
 
 </div>
+
+  ‎ ![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
+![.](282b55ff.gif)![.](2819e710.gif)
+![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
+![.](282b55ff.gif)
