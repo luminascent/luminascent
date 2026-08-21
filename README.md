@@ -44,6 +44,8 @@ _𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ
 
 [ᵖʳᵒⁿᵒᵘⁿˢ.ᶜᶜ](https://pronouns.cc/@luminascent)
 
+[ᵇˢᵏʸ](https://bsky.app/profile/luminascent.bsky.social) ⬅️ *where i post my art*
+
 
 ***[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bold+Code&pause=1000&color=930000&width=500&lines=P.S:+MY+SITES+ARE+CURRENTLY+WIP!)](https://git.io/gradient-svg)***
 
