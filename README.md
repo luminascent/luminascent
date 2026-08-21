@@ -9,9 +9,9 @@
 
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=FF69B4&width=435&lines=Withered+flowers+eventually+bloom)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=B94C0D&width=435&lines=you+want+a+taste+of+my+brain?)](https://git.io/typing-svg)
 
-</div>
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F8BA64&width=435&lines=okay,+its+yours+anyway.)](https://git.io/typing-svg)
 
 𝁽🌱𝆊𞄶𝄪𝁼 ‎ ‎ ‎ ‎ ‎‎ „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ ᴏᴘᴇɴ 𝟸 ᴍᴇᴇᴛ   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ɴᴇᴡ ᴘᴇᴏᴘʟᴇ!
 
