@@ -1,7 +1,7 @@
 ![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif) ![.](05b8a5b3.gif) ![.](05b8a5b3.gif)
 ![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif) 
 
- ‎ ‎ ‎ ‎  ![.](tumblr_177ab49da12438eb03e71b081fee2301_fae768f8_75.png)![.](Untitled667_20260909161901.png)
+ ‎
 
 ![croissants](https://komarev.com/ghpvc/?username=luminascent&label=croissants%20&color=F39124&style=social&abbreviated=true)
 
