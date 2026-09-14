@@ -38,7 +38,7 @@ _𝁽![.](282b55ff.gif) ```‎ ‎ ‎ ‎  „ ᵈᵒⁿᵗ ᵇᵉ ˢʰʸ ᵗ�
 𝁼𐂯 
 ‎ ‎ ‎ ‎ ‎  
 
-[ᵃᵗᵃᵇᵒᵒᵏ](https://luminascent.atabook.org/?page=1) . [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com/luminascent?source=share) 
+[ᵃᵗᵃᵇᵒᵒᵏ](https://luminascent.atabook.org/) . [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com/luminascent?source=share) 
 
 **strwpge / prns.cc CURRENTLY WIP**!
 
