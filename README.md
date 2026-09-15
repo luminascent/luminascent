@@ -12,7 +12,7 @@ hׁı๋! 𝗉꯭l𝘀 ı๋𝘄c 𝗎ׁ𝗻lᧉ𝘀𝘀 𝗎ׁ𝗿 m𝘆 𝗳�
 
 
 ‎ ‎ ‎ 
-![.](ezgif-234f105ab7f8e4dc.gif) ‎
+![.](https://cdn.discordapp.com/attachments/1495694551086792764/1549407070460182558/Untitled6_20260915203239.png?ex=6aaa9548&is=6aa943c8&hm=395df5c59ab70e811d3641446ae9c96c4f4b406975e80e1d5b95919402f04b21&) ‎
   
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=B94C0D&width=435&lines=𝚓𝚞𝚜𝚝+𝚒𝚗+𝚝𝚑𝚎+𝚗𝚒𝚌𝚔+𝚘𝚏+𝚃𝙸𝙼𝙴!)](https://git.io/typing-svg)
 
@@ -28,11 +28,7 @@ _𝁽![.](282b55ff.gif) ```„ ᵈᵒⁿᵗ ᵇᵉ ˢʰʸ ᵗᵒ ⁱⁿᵗ! ᵇ�
 ‎ ‎ ᵒᵗʰᵉʳ ᵗⁱᵐᵉᵏᵉᵉᵖᵉʳᵏⁱⁿˢ, ᵈᵇˡˢ ᶠʳᵉᵉˡʸ ⁱⁿᵗ!‎ ‎ ‎ ‎ _```
 ‎ ‎ ‎
 
-‎ ‎ ![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif) ![.](2819e710.gif) ![.](2819e710.gif)
-![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)
-![.](https://cdn.discordapp.com/attachments/1495694551086792764/1549405546036203581/Untitled9_20260915210421.png?ex=6aaa93dc&is=6aa9425c&hm=2f903b67d5383a6be11aaf15b5fb6732192f99fcd94b69012ba9903b07be5c38&) ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif) ![.](2819e710.gif) ![.](2819e710.gif)
-![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)
-
+![.](https://cdn.discordapp.com/attachments/1495694551086792764/1549405546036203581/Untitled9_20260915210421.png?ex=6aaa93dc&is=6aa9425c&hm=2f903b67d5383a6be11aaf15b5fb6732192f99fcd94b69012ba9903b07be5c38&)
 𝁼𐂯 
 ‎ ‎ ‎ ‎ ‎  
 
