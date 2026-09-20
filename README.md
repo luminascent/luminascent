@@ -2,7 +2,7 @@
 
 rmking sites 
 
-![croissants](https://komarev.com/ghpvc/?username=luminascent&label=croissants%20&color=F39124&style=social&abbreviated=true)
+
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=B94C0D&width=435&lines=𝚓𝚞𝚜𝚝+𝚒𝚗+𝚝𝚑𝚎+𝚗𝚒𝚌𝚔+𝚘𝚏+𝚃𝙸𝙼𝙴!)](https://git.io/typing-svg)
