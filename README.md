@@ -1,10 +1,4 @@
-![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif) ![.](05b8a5b3.gif) ![.](05b8a5b3.gif)
-![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif) 
-
- ‎
-hׁı๋! 𝗉꯭l𝘀 ı๋𝘄c 𝗎ׁ𝗻lᧉ𝘀𝘀 𝗎ׁ𝗿 m𝘆 𝗳𝗿ִı๋ᧉ𝗻ⅾ. 𝘄ֹᧉı๋𝗿ִⅾo𝘀 ⅾ𝗻ı๋ 𝗉꯭l𝘀!
-
-
+rmking ts 
 
 ![croissants](https://komarev.com/ghpvc/?username=luminascent&label=croissants%20&color=F39124&style=social&abbreviated=true)
 
@@ -15,23 +9,3 @@ hׁı๋! 𝗉꯭l𝘀 ı๋𝘄c 𝗎ׁ𝗻lᧉ𝘀𝘀 𝗎ׁ𝗿 m𝘆 𝗳�
 ![.](https://cdn.discordapp.com/attachments/1495694551086792764/1549407070460182558/Untitled6_20260915203239.png?ex=6aaa9548&is=6aa943c8&hm=395df5c59ab70e811d3641446ae9c96c4f4b406975e80e1d5b95919402f04b21&) ‎
   
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=B94C0D&width=435&lines=𝚓𝚞𝚜𝚝+𝚒𝚗+𝚝𝚑𝚎+𝚗𝚒𝚌𝚔+𝚘𝚏+𝚃𝙸𝙼𝙴!)](https://git.io/typing-svg)
-
-‎ ‎ ‎ ![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif) ![.](2819e710.gif) ![.](2819e710.gif)
-![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)
-![.](https://cdn.discordapp.com/attachments/1495694551086792764/1549405546036203581/Untitled9_20260915210421.png?ex=6aaa93dc&is=6aa9425c&hm=2f903b67d5383a6be11aaf15b5fb6732192f99fcd94b69012ba9903b07be5c38&)
-𝁼𐂯 
-‎ ‎ ‎ ‎ ‎  
-
-[ᵃᵗᵃᵇᵒᵒᵏ](https://luminascent.atabook.org/) . [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com/luminascent?source=share) 
-
-**strwpge / prns.cc CURRENTLY WIP**!
-
-![.](c3.gif) 
-   ![.](c49.gif)
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-
-
-![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif) ![.](05b8a5b3.gif) ![.](05b8a5b3.gif)
-![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)![.](05b8a5b3.gif)
